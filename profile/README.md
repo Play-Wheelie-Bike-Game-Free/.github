@@ -2,6 +2,8 @@
 
 Get ready to pop a wheelie and **ride like a pro** in **Wheelie Bike** – the **ultimate bike balancing simulator** that tests your timing, focus, and skills! Whether you're a **casual rider** or a **hardcore stunt lover**, this game offers an **addictive and thrilling experience** that will keep you coming back for more.
 
+## <a href="https://1kb.link/4J9Gbj">👉 Click To Play Wheelie Bike Unblocked 👈</a>
+
 ### 🚴 **Extreme Features of Wheelie Bike**
 
 * 🎮 **Hyper Casual Gameplay**: Simple controls, easy to learn but hard to master!
